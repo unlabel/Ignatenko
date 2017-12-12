@@ -1,0 +1,6 @@
+![](https://github.com/unlabel/Ignatenko/blob/master/read_norm/1.png?raw=true)
+![](https://github.com/unlabel/Ignatenko/blob/master/read_norm/2.png?raw=true)
+![](https://github.com/unlabel/Ignatenko/blob/master/read_norm/3.png?raw=true)
+![](https://github.com/unlabel/Ignatenko/blob/master/read_norm/4.png?raw=true)
+![](https://github.com/unlabel/Ignatenko/blob/master/read_norm/5.png?raw=true)
+![](https://github.com/unlabel/Ignatenko/blob/master/read_norm/6.png?raw=true)
